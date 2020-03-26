@@ -4,11 +4,10 @@ Screenshots: https://www.behance.net/cybdom
 
 Time spent: WASN'T RECORDING :/
 
-hourly rate: 40usd
-
 contact me: @cybdom (twitter) || contact@cybdom.tech (email)
 
-Buy me coffee ?
+I'd appreciate it if you could show your support by buying me some coffee. Thank you :)
+
 https://www.buymeacoffee.com/bi3cp0Zk5
 
 <img src="screenshot1.png">
